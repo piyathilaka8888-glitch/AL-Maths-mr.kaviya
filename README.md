@@ -1,4 +1,4 @@
-# 🎯 දින 92ක GCE A/L ගණිත අංශ — ප්‍රධාන අධ්‍යයන සැලැස්ම
+# 🎯 දින 92ක GCE A/L Maths MR Kaviya
 
 > **📅 October 1 → December 31 | දින 92 | GCE A/L Maths Stream**
 
